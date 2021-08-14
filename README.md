@@ -2,7 +2,7 @@ Hi there, I'm @Mithun-kumarS
 
 Talking about Personal Stuffs:
 
-👨🏽‍💻 I worked as Asst. Manager Operations at Aspire;
+👨🏽‍💻 I worked as Asst. Manager Operations at Aspire, Currently looking for job as ML Engineer;
 
 🤔 My interests are with Data Science,Machine Learning etc..;
 
